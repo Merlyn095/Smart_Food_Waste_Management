@@ -1,0 +1,1 @@
+# Smart_Food_Waste_Management
